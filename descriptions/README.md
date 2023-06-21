@@ -1,0 +1,1 @@
+Please note that these descriptions are written in Persian.
